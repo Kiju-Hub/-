@@ -3,6 +3,7 @@
 
 
 ## 🔴 시연 동영상 
+> https://www.youtube.com/watch?v=c_itagSuSwg
 > 시연 동영상입니다. 
 
 
